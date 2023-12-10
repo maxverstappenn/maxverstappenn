@@ -1,4 +1,4 @@
-![image](https://i1.sndcdn.com/visuals-000457542975-TDVmkC-original.jpg)
+![image](https://64.media.tumblr.com/2de41762f5d8402b40d9f20e2ea98c40/tumblr_p396i2YjgH1vsaj6co4_1280.png)
 
 ![image](https://github.com/maxverstappenn/maxverstappenn/assets/136962507/2c717798-2a38-4a7d-9881-c0cb073c7e0f)
 
