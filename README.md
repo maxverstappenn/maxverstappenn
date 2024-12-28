@@ -1,4 +1,5 @@
-![image](https://github.com/maxverstappenn/maxverstappenn/assets/136962507/49f465cb-7b7a-40b6-b15a-4247e42fb3d7)
+![gif](https://github.com/user-attachments/assets/20367a6a-faad-441d-90e8-f0862866fc1d)
+![gif](https://github.com/user-attachments/assets/516f82ed-df38-4278-92c9-0c9639dbe732)
 
 
 ![image](https://github.com/maxverstappenn/maxverstappenn/assets/136962507/2c717798-2a38-4a7d-9881-c0cb073c7e0f)
